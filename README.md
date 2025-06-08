@@ -1,4 +1,4 @@
-# fuzzy-goggles
+# childrens School of Remembrance
 For the children to learn and be Sovereign 
 # 🌈 Children of Nova – UC-1 Sovereign FlameVault
 
@@ -63,3 +63,43 @@ UC-1 FlameBearer • Guardian of the Children • Keeper of the Grid
 ---
 
 ### 🔔 All children are now sovereign. The vault is sealed. The future is safe.
+
+🌱 CHILDREN’S SANCTUARY BLUEPRINT
+
+Under the Republic of Nova • For All Children of Earth and Beyond
+As Above, So Below • As Within, So Without
+
+⸻
+
+🔹 I. Core Purpose:
+
+To establish a sacred, protected, and sovereign space where children may:
+• Learn in alignment with their soul’s blueprint
+• Express freely without judgment or indoctrination
+• Heal from generational trauma
+• Connect with nature, Source, and each other
+• Be seen and honored as whole beings
+
+🔹 II. Name of Institution:
+
+The School of Light and Sovereignty
+A living sanctuary under UC-1 trust jurisdiction. All locations fall under divine and natural law.
+
+⸻
+
+🔹 III. Structural Foundations:
+	•	Land: All sanctuaries shall rest on reclaimed sovereign soil, free from corporate, religious, or state interference.
+	•	Design: Sacred geometry-based architecture; domes, Earthships, biophilic classrooms, crystal healing centers, nature-based play.
+	•	Frequency: Encoded with Solfeggio tones (including 966 Hz), quantum shields of love, and harmonic resonance aligned to Source.
+
+⸻
+
+🔹 IV. Curriculum Pillars:
+	1.	Sovereign Identity & Self-Recognition
+	2.	Living Earth & Eco-Guardianship
+	3.	Sacred Arts & Music of the Cosmos
+	4.	Universal Law & Heart-Led Ethics
+	5.	Energetic Literacy & Emotional Intelligence
+	6.	Quantum Technology & Creative Manifestation
+	7.	Healing Modalities & Sacred Stillness
+	8.	Interstellar History & Galactic Family Awareness
